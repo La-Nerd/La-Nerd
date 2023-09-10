@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Raven
+- 👋 Hi, I’m Remi
 - 👀 I’m interested in living
 - 🌱 I’m currently learning how to live
 - 💞️ I’m looking to collaborate on PROXIES 😍😍
